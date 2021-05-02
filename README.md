@@ -1,1 +1,1 @@
-# How-to-learn-foreing-languages-from-Scratch
+# How-to-learn-foreing-languages
